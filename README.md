@@ -2,6 +2,8 @@
 
 **Looking for a way to get *5000 free spins* in Coin Master? You've come to the right place!** In this article, we'll walk you through the steps to activate the *Coin Master Free 5000 Spin Link* and claim your free coins to maximize your progress in the game. But before we dive into the process, make sure you’ve accepted the *free 5000 spin offer* to take full advantage of this guide!
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 Coin Master, developed by Moon Active, has become one of the most popular mobile games around, combining elements of slot machines, village building, and social play. Whether you're trying to upgrade your village, raid your friends' villages, or spin your way to victory, free spins and coins are essential to success.
 
 The Coin Master community is always looking for ways to maximize their earnings, and *free spins* are a great way to do so. If you're wondering how to activate the Coin Master Free 5000 Spin Link, read on for all the details you need to start collecting free spins and coins today!
